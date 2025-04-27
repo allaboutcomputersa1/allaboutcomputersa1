@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @allaboutcomputersa1
-- 👀 I’m interested in ... IT  hacking 
-- 🌱 I’m currently learning ... IT  hacking
-- 💞️ I’m looking to collaborate on ...  IT  hacking 
-- 📫 How to reach me ... allaboutcomputersa1@gmail.com    1845-202-2871
-- 😄 Pronouns: ...
+- 👀 I’m interested in ... IT  
+- 🌱 I’m currently learning ... IT 
+- 💞️ I’m looking to collaborate on ...  IT  
+- 📫 How to reach me ... allaboutcomputersa1@gmail.com    
+- 😄 Pronouns: ... To Join my WhatsApp status message me on +19143932343
 - ⚡ Fun fact: ...the road to succsess is always under control!!!
 
 <!---
